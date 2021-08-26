@@ -1,5 +1,5 @@
 # blog
 
-Goodnight sweetheart.
+Goodnight.
 
-## sleep,I would dream about your.
+## You will become stronger.
